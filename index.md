@@ -4,4 +4,4 @@ This domain is a gift to Luca Herlein for life.  All annual domain fees will be 
 
 Merry Christmas!
 
-Love, Mom and Dad
+Love, Dad
